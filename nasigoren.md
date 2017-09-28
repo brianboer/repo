@@ -6,7 +6,7 @@
 - 2 cup uncooked white rice
 - 4 cups water
 - cooking spray
-- 3 eggs, beaten
+- 6 eggs, beaten
 - 1 tablespoon vegetable oil
 - 1 onion, chopped
 - 1 leek, chopped

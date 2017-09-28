@@ -31,3 +31,7 @@ Put a large heavy-based saucepan on a medium heat and add 1 tbsp olive oil. Add 
 Add the tinned tomatoes, chopped basil, oregano, bay leaves, tomato purée, stock cube, chilli, wine and cherry tomatoes. Stir with a wooden spoon, breaking up the plum tomatoes. Bring to the boil, reduce to a gentle simmer and cover with a lid. Cook for 1 hr 15 mins stirring occasionally, until you have a rich, thick sauce. Add the Parmesan, check the seasoning and stir.
 
 When the Bolognese is nearly finished cook the spaghetti following pack instructions. Drain the spaghetti and stir into the Bolognese sauce. Serve with grated Parmesan the extra basil leaves and crusty bread, if you like.
+
+## EAT
+
+eat spaghetti

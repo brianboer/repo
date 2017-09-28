@@ -6,7 +6,7 @@
 - 1 tbsp olive oil
 - 4 rashers smoked streaky bacon, finely chopped
 - 2 medium onions
-- 2 carrots
+- 3 carrots
 - 2 celery sticks, finely chopped
 - 2 garlic cloves, finely chopped
 - 2-3 sprigs rosemary, leaves picked and finely chopped
